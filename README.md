@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Prajakta Ghanshyam kalgutkar 
-**BCA student || from India**
+**MCA student || from India**
 
 Email Me 👉 ✉️ **prajaktakalgutkar179@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
